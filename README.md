@@ -1,0 +1,1 @@
+# papertalesofjapan.github.io
